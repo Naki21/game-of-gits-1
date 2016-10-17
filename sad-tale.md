@@ -7,3 +7,5 @@ Joffrey Baratheon was the one to do Ned in, but his story was only about to bein
 Joffrey drinks poision wine and dies cause he sucks
 
 Joffrey's young brother married the princess who poisoned him and is happy.
+
+Other stuff about game of thrones
